@@ -1,1 +1,2 @@
 if You Know Me in Real Life Or Online Then i Made A Custom One That Logs IP Address And Device information
+How To Get The Custom IP Logger? DM Travis Scott Fish Official シ By Joining The Public Discord Server That's Not Custom: https://discord.gg/AgwRfFHTKp Then Click On My Username To DM Me For The Custom IP Logger Which Requires A Password That i Will Give To You To Enter The Password into This Website: https://travisfishdiscord.netlify.app
